@@ -15,4 +15,4 @@ I was handed a wheelbarrow load of survey based data by our marketing senior man
 
 ### HAVE A READ TO FIND OUT THE INTERESTING RESULTS!
 
-[Click here to see the pdf file](Best+Markets+to+Advertise+In.pdf) (if you would like to download the pdf file).
+[Click here to see the pdf file](Best+Markets+to+Advertise+In.pdf) (this can be downloaded).
